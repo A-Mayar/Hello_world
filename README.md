@@ -1,2 +1,2 @@
 # Hello_world
-I want to learn coding.
+I want to learn fast.
